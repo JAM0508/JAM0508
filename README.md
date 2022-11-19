@@ -1,4 +1,6 @@
 ### Hi there 👋
+### JAYADITYA THIS SIDE
+### NOVICE TECH ENTHUSIAST
 
 <!--
 **JAM0508/JAM0508** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
